@@ -1,6 +1,6 @@
 ## Olá! 🖐🏾 
 
-### Eu sou o Thiago Henrique Domingues - Cids 😀
+### Eu sou o Thiago Henrique Domingues - Cids  😄
 
 <br/>
 
